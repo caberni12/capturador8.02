@@ -1,0 +1,1 @@
+# capturador8.02
